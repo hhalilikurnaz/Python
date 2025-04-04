@@ -48,7 +48,7 @@ Her klasör bir konuyu temsil ediyor. Ve her klasörün içinde, bol bol kod var
 ## 💌 Beni Takip Et
 
 📍 GitHub: [hhalilikurnaz](https://github.com/hhalilikurnaz)  
-🔗 LinkedIn: [Halil İbrahim Kurnaz](https://www.linkedin.com/in/halil-ibrahim-kurnaz-03585a821a)
+🔗 LinkedIn: [Halil İbrahim Kurnaz](https://www.linkedin.com/in/halilibrahimkurnaz33/)
 
 ---
 
